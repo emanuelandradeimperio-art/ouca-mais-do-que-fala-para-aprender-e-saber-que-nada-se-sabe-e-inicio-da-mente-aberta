@@ -1,0 +1,1 @@
+# ouca-mais-do-que-fala-para-aprender-e-saber-que-nada-se-sabe-e-inicio-da-mente-aberta
